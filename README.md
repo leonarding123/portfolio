@@ -21,4 +21,4 @@ Motivated and detail-oriented third-year BSIT student with hands-on experience i
 - watching movies
 
 ### Projects
-![Camera shots](assets/images/
+![Camera shots](assets/images/358155320_167362923008371_6119018889921883135_n.png)
