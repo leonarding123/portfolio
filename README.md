@@ -20,3 +20,6 @@ Motivated and detail-oriented third-year BSIT student with hands-on experience i
 - basketball
 - watching movies
 
+### Projects
+- NSTP Poster
+- Camera shots
